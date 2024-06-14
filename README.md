@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @CedricMabilotte
+- 👋 Hi, I’m @CedricMabilotte and you can find more about me at cedric.mabilotte.com
 - 👀 I’m interested in many things
 - 🌱 I’m currently learning how to produce content and exchange knowledge using participative art
 - 💞️ I’m looking to collaborate on distopic content publication and free community development
